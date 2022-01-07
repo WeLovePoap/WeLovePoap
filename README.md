@@ -1,7 +1,8 @@
 - 👋 Hi, I’m @WeLovePoap
 - 👀 I’m interested in and everything around POAP
 - 🌱 I’m currently learning new thing's everyday
-- 💞️ I’m looking to collaborate on poap
+- 💞️ Dropping NFT project SOON
+- i love poap NFT & METAVERSE
 - 📫 How to reach me -> discord : WeLovePoap#2058
 
 <!---
